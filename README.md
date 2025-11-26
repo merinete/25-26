@@ -1,4 +1,5 @@
 # 25-26
-práctica rpmi 25 26
+práctica ri 25 26
 asdfasd
-dghgfhn
+dghgf
+sdfgsdf
